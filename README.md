@@ -1,1 +1,1 @@
-# [Open](https://alexandr1solo.github.io/Letter-1-traning/)
+# [Open](https://alexandr1solo.github.io/Letter-traning/)
